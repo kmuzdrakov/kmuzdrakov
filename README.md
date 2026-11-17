@@ -1,2 +1,2 @@
 - 👋 Hi,
-- 📫 Feel free to reach me through my linkedIn page: https://www.linkedin.com/in/freewebstyle
+- 📫 Feel free to reach me through my linkedIn page: https://www.linkedin.com/in/playline
